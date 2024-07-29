@@ -5,7 +5,7 @@
 ## 💞️ Collaboration: I'm looking to collaborate with fellow writers, editors, and illustrators. If you share a love for storytelling and want to work on exciting projects together, let's connect!
 ## 📫 How to Reach Me
 You can reach me via:
-- **Email**: matikojoseph@example.com
+- **Email**: matikojoseph442@gmail.com
 - **Twitter**: [https://x.com/MatikoJose84439?s=09)
 - **TikTok**: [tco224)
 - ## 😄 Pronouns: He/Him
